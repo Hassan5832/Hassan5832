@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Hassan5832
-- 👀 I’m interested in ...Digital marketing
-- 🌱 I’m currently learning ...SEO
+- 👀 I’m interested in ...Digital marketing Skills
+- 🌱 I’m Experienced ... SEO Specialist
 - 💞️ I’m looking to collaborate on ...SEO
 - 📫 How to reach me ...mhassanseo32@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...have a fun
 
 <!---
